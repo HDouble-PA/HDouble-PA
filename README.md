@@ -3,9 +3,5 @@
 
 - 🔭 I’m currently working on **Self-Learning Projects.**
 
-- 😄 Pronouns: **R1 , Hnin Pwint.**
-
-- 🤩 Hobby: **Travelling , Playing Games.**
-
 - 📫 How to reach me! **hninpwintphyuaung98@gmail.com**
 
